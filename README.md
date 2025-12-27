@@ -30,7 +30,7 @@
 
 ## 📫 Contato
 
-- **LinkedIn:** [LinkedIn](https://www.linkedin.com/in/henrique-pereira-7663053a3/)  
+- **LinkedIn:** [LinkedIn](https://www.linkedin.com/in/henrique-p-7663053a3/)  
 
 ---
 
